@@ -1,1 +1,1 @@
-https://dopaaminee.github.io/hehe/
+https://dopaaminee.github.io/luv-u/
